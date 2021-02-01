@@ -1,2 +1,2 @@
 # Become-a-racist
-gane xd
+game xd
